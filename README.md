@@ -14,3 +14,6 @@ https://www.youtube.com/watch?v=V1qKac7zTKQ&ab_channel=MateoG%C3%B3mezMaryncak
 
 2da Parte
 https://www.youtube.com/watch?v=PHo1UWOEDKs&ab_channel=MateoG%C3%B3mezMaryncak
+
+3ra Parte
+https://drive.google.com/file/d/1hsE-o6_eJrKzSFW79b1pU5ZS0VeYXrLl/view?usp=sharing

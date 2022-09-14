@@ -3,10 +3,10 @@ Dumentacion
 https://drive.google.com/drive/folders/13cciiMkouT-D1KZA23iF8BNECjYg2Xo2?usp=sharing
 
 Trabajo
-https://www.tinkercad.com/things/gHd29vuWLAp-copy-of-proyecto-grupo/editel?sharecode=x_U8IgwTUoGgPST-9AUwlPkpsVThtraPOd-Xoh0ln8I
+https://www.tinkercad.com/things/dk3LIWbMEOK-copy-of-proyecto-grupo/editel?sharecode=uMpsv8Ef-dapFlDqYloky_zlMq6bLFoIXgcq-oY35YI
 
 Codigo en gdb
-https://onlinegdb.com/vKtC-PdIAV
+https://onlinegdb.com/E1-NmbueL
 
 Video del proceso (youtube)
 1ra parte 
